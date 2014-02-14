@@ -19,3 +19,4 @@ Should you want to know anything about me, I would have you peruse my online res
 This is meant as an educational piece, please feel free to use it as benefits you, just drop me a note if you find it 
 useful.
 
+ 
